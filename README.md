@@ -1,1 +1,2 @@
-# Ear-Wax-Removal-Marylebone
+# Ear Wax Removal Marylebone
+There are several ways to clean your ears and remove your [ear wax removal marylebone](https://goo.gl/maps/8H4L52bzde3DGfqg9) safely at home. Washing regularly should be enough to keep your ears clean, but you can also use a damp washcloth to gently clean the outside of your ears, or an ear irrigation kit along with wax softeners and preventers to combat buildup and moisturise the ear canal.
